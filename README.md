@@ -1,4 +1,4 @@
-### Hi there i am chhavi kesharwani.
+### Hi there, i am Chhavi Kesharwani.
 👋
 
 <!--
